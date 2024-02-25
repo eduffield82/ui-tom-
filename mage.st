@@ -1,3 +1,12 @@
+ed
+  switch io2 ni npio2p in2pi  pio2 iopnpo in2inop2op ni niop niopa niop inoa diniask df
+io 
+ha 
+  ed oi;2 inop nio2np io2n pionp io2n pio2n ipo2ip nopi no2 ipno inpoi ikllan a 
+
+ed
+  switch ioasdhpiohip oasphidgihp a phisdgp iop n2n iop imopi op2 i2 iop ino2 o
+
 return 
 
 
